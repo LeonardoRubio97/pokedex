@@ -1,0 +1,1 @@
+# Lista dos 150 Pokémons clássicos #
